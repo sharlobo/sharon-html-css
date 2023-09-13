@@ -2,4 +2,4 @@
 
 By Sharon Lobo
 
-Due Sep. 8th.
+Due Sep. 8th and Sep. 15th.
